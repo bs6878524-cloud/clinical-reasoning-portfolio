@@ -26,4 +26,4 @@ This repository contains de-identified clinical reasoning examples, attending-le
 ## Contact
 
 New York, NY  
-LinkedIn: linkedin.com/in/kingsleywi
+Email: bs6878524@gmail.com 
